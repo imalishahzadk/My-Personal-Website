@@ -1,0 +1,1 @@
+This personal website serves as a comprehensive platform showcasing your profile, resume, skills, services, and contact information. Visitors can explore your background, download your resume, and reach out to you through a contact form for inquiries or messages.
